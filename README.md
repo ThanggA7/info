@@ -1,1 +1,1 @@
-<p>Thắng INFOAMATION </p>
+THẮNG INFOMATION
